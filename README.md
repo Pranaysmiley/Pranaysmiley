@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Btech
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me kpranay21114cs022@gmail.com
-- 😄 Pronouns: Smiley
+- 😄 Pronouns: PRANAY
 - ⚡ Fun fact: ...
 
 <!---
