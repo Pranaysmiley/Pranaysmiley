@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Pranaysmiley
+- 👋 Hi, I’m @Pranay
 - 👀 I’m interested in to explore a world of AI
 - 🌱 I’m currently learning Btech
 - 💞️ I’m looking to collaborate on ...
